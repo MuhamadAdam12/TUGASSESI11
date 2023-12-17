@@ -1,4 +1,4 @@
-![IMG-20231216-WA0013](https://github.com/Tegarprtm21/PraktikumPPMsesi11/assets/114232818/7918fd06-76ae-4933-8c11-010f5d458450)
-![IMG-20231216-WA0014](https://github.com/Tegarprtm21/PraktikumPPMsesi11/assets/114232818/9c260916-93bd-4199-855a-4e27b0c63df4)
-![IMG-20231216-WA0015](https://github.com/Tegarprtm21/PraktikumPPMsesi11/assets/114232818/d29d2e20-4e7b-413a-b7c8-2ed73155a369)
-![IMG-20231216-WA0016](https://github.com/Tegarprtm21/PraktikumPPMsesi11/assets/114232818/7130d7b7-5325-4461-a7f1-264c7696566c)
+![1](https://github.com/MuhamadAdam12/TUGASSESI11/assets/114368922/56d2dcd0-f4c3-4669-a952-66ff25224ed8)
+![2](https://github.com/MuhamadAdam12/TUGASSESI11/assets/114368922/8d857b01-d735-487e-93c0-88419b4a4f0b)
+![3](https://github.com/MuhamadAdam12/TUGASSESI11/assets/114368922/fd05a52e-5be6-4dc0-b86d-a28fc8565554)
+![4](https://github.com/MuhamadAdam12/TUGASSESI11/assets/114368922/5832e281-4006-435c-ab5b-ed9bccb3c194)
